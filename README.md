@@ -1,1 +1,1 @@
-# ![](https://files.catbox.moe/otqjqz.jpg°
+# ![](https://files.catbox.moe/otqjqz.jpg)
