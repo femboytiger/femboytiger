@@ -1,3 +1,5 @@
+That one person who said they can’t take Hannibal seriously because he serves too much was right. It’s impossible to pay attention to the murder when cunty-tron 5000 is there
+
 <img src="https://files.catbox.moe/l1iple.gif" width="400px">
 <img src="https://files.catbox.moe/pqs17s.jpg" width="400px">
 <p align="left">
