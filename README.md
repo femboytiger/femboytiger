@@ -5,6 +5,11 @@
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&duration=4000&pause=1400&color=82B9DA&width=435&lines=%22silly+caucasian+girl+likes+to+play+with+samurai+swords%22" />
 </p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/6ece7b05-2de1-4fc5-b3cd-d43db60efe86" width="495" />
+</p>
+
 <p align="center">
 <img width="79" height="79" alt="tumblr_0135c6cdb160493b036b765245c6fe2d_101ec93e_100" src="https://github.com/user-attachments/assets/45ec76a8-3a47-4645-bd33-2fbb4beae9ec" />
 <img width="79" height="79" alt="tumblr_c51eee268e77e89abbd9ed274f9bdd36_8d608e4e_100" src="https://github.com/user-attachments/assets/e8460c3f-014d-4ee3-8149-32f24505ee70" />
