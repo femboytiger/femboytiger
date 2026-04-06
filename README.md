@@ -21,4 +21,8 @@
 </p>
 
 
+<p align="center">
+<img src="https://media.archiveofourown.org/news/ao3-updates/2026-04-leaving-beta/badge-english.png" alt="Circular badge with the words 'I was here for beta' with an AO3 logo">
+</p>
+
 
