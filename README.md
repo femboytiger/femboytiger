@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img width="500" height="375" alt="tumblr_da2edde4ded731071bd557511f81601d_e1e3966b_500" src="https://github.com/user-attachments/assets/e24fd475-c317-41ca-bf77-d7e8e6bd6788" />
+<img alt="tumblr_da2edde4ded731071bd557511f81601d_e1e3966b_500" src="https://github.com/user-attachments/assets/e24fd475-c317-41ca-bf77-d7e8e6bd6788" />
 
 </p>
 
