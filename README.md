@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=femboytiger&color=red&style=plastic&label=walkers" />
+ <img src="https://komarev.com/ghpvc/?username=femboytiger&color=640026&style=plastic&label=walkers" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&duration=1100&pause=10&color=F72222A4&center=true&width=435&lines=this+could+be+us..;EXACTLY.+NOTHING." alt="Typing SVG" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=640026&center=true&width=435&lines=the+first+man+i+killed%2C;called+me+the+devil.;and+the+last+boy+i+killed%2C;the+only+boy+i'll+ever+love%2C;called+me+an+angel." alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
