@@ -1,7 +1,5 @@
 
-<p align="center">
- RENTRY IS OUTDATED!!! REMAKING IT SOON
- <p/>
+
 <p align="center">
  <img src="https://komarev.com/ghpvc/?username=femboytiger&color=640026&style=plastic&label=walkers" />
 </p>
