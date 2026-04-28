@@ -1,25 +1,26 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=femboytiger&color=640026&style=plastic&label=walkers" />
+ <img src="https://komarev.com/ghpvc/?username=femboytiger&color=fbb3f5&style=plastic&label=walkers" />
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=640026&center=true&width=435&lines=the+first+man+i+killed%2C;called+me+the+devil.;and+the+last+boy+i+killed%2C;the+only+boy+i'll+ever+love%2C;called+me+an+angel." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Irish+Grover&duration=4000&pause=1&color=F7B1F1&center=true&width=435&lines=meow+meow+meow+meow+meow" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
-<img width="500" height="375" alt="tumblr_da2edde4ded731071bd557511f81601d_e1e3966b_500" src="https://github.com/user-attachments/assets/4a8e228d-b2bc-4421-a885-f37af5496543" />
+<img src="https://file.garden/aEsJz0VluAeY7u3C/tumblr_c16c861b955c1bc46571ee909fa33f6a_e46a26f7_400.webp"/>
 
 </p>
 
 <p align="center">
-<img src= "https://files.catbox.moe/tbu0il.gif" />
-<img src="https://files.catbox.moe/vdr25k.gif"/> 
-<img src="https://files.catbox.moe/qb7w29.gif"/>
-<img src="https://files.catbox.moe/ah9ktj.gif"/>
-<img src="https://files.catbox.moe/hb4hpc.gif"/>
- <img src="https://files.catbox.moe/ljprhr.gif"/>
+<img src="https://file.garden/aEsJz0VluAeY7u3C/doll.gif"/> 
+<img src="https://file.garden/aEsJz0VluAeY7u3C/57.gif"/>
+ <img src="https://file.garden/aEsJz0VluAeY7u3C/sweet-cwureful.gif"/>
+<img src="https://file.garden/aEsJz0VluAeY7u3C/61.gif"/>
+ <img src="https://file.garden/aEsJz0VluAeY7u3C/23.gif"/>
+<img src="https://file.garden/aEsJz0VluAeY7u3C/41.gif"/>
+
 </p>
 
 
