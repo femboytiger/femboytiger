@@ -14,9 +14,7 @@
   &nbsp;&nbsp;&nbsp;
   <a href="https://unicornprincess.atabook.org/">ata</a>
   &nbsp;&nbsp;&nbsp;
-  <a href="https://artfight.net/~femboytiger">art fight</a>
-  &nbsp;&nbsp;&nbsp;
-  <a href="https://pronouns.cc/@femboytiger">pro.cc</a>
+ <a href="https://pronouns.cc/@femboytiger">pro.cc</a>
 </p>
 
 <p/>
