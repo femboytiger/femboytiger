@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img src="https://file.garden/aEsJz0VluAeY7u3C/wxc"width="500"/>
+<img src="https://files.catbox.moe/6qimg6.png"width="500"/>
 
 </p>
 
