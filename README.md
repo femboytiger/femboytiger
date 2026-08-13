@@ -3,11 +3,16 @@
 <p align="center">
  <img src="https://komarev.com/ghpvc/?username=femboytiger&color=red&style=plastic&label=walkers" />
 </p>
+<p alight="center">
+ (made by my wonderful friend @printerbattle)
+</p>
 
 <p align="center">
-<img src="https://files.catbox.moe/6qimg6.png"width="500"/>
+<img src="https://files.catbox.moe/t5nw4p.png"width="300"/>
 
-</p>
+
+
+
 
 <p align="center">
   <a href="https://rentry.co/lostambition">rentry</a>
