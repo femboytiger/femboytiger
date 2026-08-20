@@ -27,8 +27,10 @@
 
 <p/>
 <p align="center">
-am ryan goslings biggest hater
+revolver ocelot's husband since 2024
 </p>
+
+
 
 
 </p>
