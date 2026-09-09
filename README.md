@@ -1,7 +1,7 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=femboytiger&color=red&style=plastic&label=fans" />
+ <img src="https://komarev.com/ghpvc/?username=femboytiger&color=blue&style=plastic&label=fans" />
 </p>
 
 <p align="center">
