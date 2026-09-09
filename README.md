@@ -1,11 +1,11 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=femboytiger&color=red&style=plastic&label=walkers" />
+ <img src="https://komarev.com/ghpvc/?username=femboytiger&color=red&style=plastic&label=fans" />
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/ydwi0b.gif">
+<img src="https://files.catbox.moe/45c6bt.png" width=450px;>
 </p>
 
 
@@ -25,11 +25,11 @@
 
 <p/>
 <p align="center">
-revolver ocelot's husband since 2024
+revolver ocelot's husband since forever
 <p/>
 
 <p align="center">
- HUGE BIGG fanatic of metal gear solid
+♡ metal gear solid
 </p>
 
 
