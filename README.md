@@ -9,7 +9,26 @@
 </p>
 
 
+<div align="center">
 
+<details>
+  <summary><b>BYI</b></summary>
+
+  <div align="center">
+
+   
+i am tiger, i only go by he/him and am unlabeled.
+    
+  
+I’m a distant person and sometimes struggle with maintaining friendships.
+
+Nonetheless, I’m still friendly, and you’re always welcome to interact with me.
+   
+  </div>
+
+</details>
+
+</div>
 
 
 <p align="center">
@@ -23,19 +42,13 @@
   &nbsp;&nbsp;&nbsp;
 </p>
 
-<p/>
-<p align="center">
-revolver ocelot's husband since forever
-<p/>
 
-<p align="center">
-♡ metal gear solid
-</p>
+
+ 
 
 
 
 
-</p>
 
 
 
