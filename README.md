@@ -23,6 +23,8 @@ i am tiger, i only go by he/him and am unlabeled.
 I’m a distant person and sometimes struggle with maintaining friendships.
 
 Nonetheless, I’m still friendly, and you’re always welcome to interact with me.
+
+I’m pretty private about my life + I don’t really share much about myself unless we are close.
    
   </div>
 
