@@ -1,11 +1,11 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=femboytiger&color=blue&style=plastic&label=fans" />
+ <img src="https://komarev.com/ghpvc/?username=femboytiger&color=grey&style=plastic&label=cells" />
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/45c6bt.png" width=450px;>
+<img src="https://files.catbox.moe/raizug.gif" width=450px;>
 </p>
 
 
