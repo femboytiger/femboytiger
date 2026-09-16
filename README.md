@@ -40,8 +40,7 @@ I’m pretty private about my life + I don’t really share much about myself un
   &nbsp;&nbsp;&nbsp;
  <a href="https://pronouns.cc/@femboytiger">pro.cc</a>
  &nbsp;&nbsp;&nbsp;
- <a href="https://honeysen.straw.page">strawpage</a>
-  &nbsp;&nbsp;&nbsp;
+
 </p>
 
 
