@@ -26,7 +26,7 @@ I’m pretty private about my life + I don’t really share much about myself un
 
 Nonetheless, I’m still friendly, and you’re always welcome to interact with me.
 
-i am also a big fan of mgs, and am married to ocelot and raiden
+i am also a big fan of mgs and am married to ocelot and raiden
 
 
    </div>
