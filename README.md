@@ -17,7 +17,7 @@
   <div align="center">
 
    
-i am tiger, i only go by he/him and am unlabeled.
+i am tiger, i only go by he/him only and masc terms
     
   
 I’m a distant person and sometimes struggle with maintaining friendships.
