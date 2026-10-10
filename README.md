@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/ldkmvw.gif" width=450px;>
+<img src="https://files.catbox.moe/5e4wmq.gif" width=450px;>
 </p>
 
 
@@ -17,17 +17,13 @@
   <div align="center">
 
    
-i am tiger, i only go by he/him only and masc terms
+i am tiger, i use he/him + masc terms
     
-  
 I’m a distant person and sometimes struggle with maintaining friendships.
 
 I’m pretty private about my life + I don’t really share much about myself unless we are close.
 
 Nonetheless, I’m still friendly, and you’re always welcome to interact with me.
-
-i am also a big fan of mgs and am married to ocelot and raiden
-
 
    </div>
 
