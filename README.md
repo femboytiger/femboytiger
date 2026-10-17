@@ -35,7 +35,7 @@ Nonetheless, I’m still friendly, and you’re always welcome to interact with 
 <p align="center">
   <a href="https://rentry.co/lostambition">rentry</a>
   &nbsp;&nbsp;&nbsp;
-  <a href="https://unicornprincess.atabook.org/">ata</a>
+  <a href="https://unicornprincess.atabook.org/">新</a>
   &nbsp;&nbsp;&nbsp;
  <a href="https://pronouns.cc/@femboytiger">pro.cc</a>
  &nbsp;&nbsp;&nbsp;
