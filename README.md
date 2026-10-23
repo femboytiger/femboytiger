@@ -17,13 +17,10 @@
   <div align="center">
 
    
-i am tiger, i use he/him + masc terms
-    
-I’m a distant person and sometimes struggle with maintaining friendships.
-
-I’m pretty private about my life + I don’t really share much about myself unless we are close.
-
-Nonetheless, I’m still friendly, and you’re always welcome to interact with me.
+my name is tiger, i like nicknames.
+i only go by he him and use masc terms.
+i struggle with maintaining friendships, and i dont share much ab myself.
+i am not looking for friends atm
 
    </div>
 
