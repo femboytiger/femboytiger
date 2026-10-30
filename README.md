@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/5e4wmq.gif" width=450px;>
+<img src="https://files.catbox.moe/x8npc1.gif" width=450px;>
 </p>
 
 
@@ -20,11 +20,9 @@
   <div align="center">
 
    
-my name is tiger, i like nicknames.
-i only go by he him and use masc terms.
-i struggle with maintaining friendships, and i dont share much ab myself.
-i am not looking for friends atm
-
+tiger, he/him 15.
+i am not looking for new friends atm.
+i am very friendly you cant int whenever (dont expect a friendship out of it).
    </div>
 
 </details>
