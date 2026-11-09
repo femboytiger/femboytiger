@@ -21,8 +21,8 @@
 
    
 tiger, he/him 15.
-i am not looking for new friends atm.
-i am very friendly you cant int whenever (dont expect a friendship out of it).
+i am looking for new friends atm.
+i am very friendly you cant int whenever, I like people who are nice yay
    </div>
 
 </details>
