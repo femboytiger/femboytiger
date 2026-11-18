@@ -20,9 +20,7 @@
   <div align="center">
 
    
-tiger, he/him 15.
-i am looking for new friends atm.
-i am very friendly you cant int whenever, I like people who are nice yay
+tiger, he/him 15. i am very friendly you cant int whenever. 
    </div>
 
 </details>
