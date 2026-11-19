@@ -21,6 +21,7 @@
 
    
 tiger, he/him 15. i am very friendly you can int whenever. 
+i do not condone nor support the acts/morals of my favorite characters
    </div>
 
 </details>
