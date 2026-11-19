@@ -20,7 +20,7 @@
   <div align="center">
 
    
-tiger, he/him 15. i am very friendly you cant int whenever. 
+tiger, he/him 15. i am very friendly you can int whenever. 
    </div>
 
 </details>
